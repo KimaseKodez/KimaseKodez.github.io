@@ -9,7 +9,6 @@ ldouglas2@my.waketech.edu
 	- I love Transformers
 	- Anime and Manga!
 ### Transformer Lore because why not
-	*[Transformers Wiki]
 [Transformers Wiki](tfwiki.net/wiki/Transformer#:~:text=The%20Transformers%20Cybertronus%20cybertronii%20are%20a%20species%20of)
 _I love this website namely because it helps me read all media sources in order_
 
